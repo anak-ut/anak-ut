@@ -2,7 +2,7 @@
 - 👀 I’m interested in tinju
 - 🌱 I’m currently learning tinju
 - 💞️ I’m looking to collaborate on tinju 1 vs 5
-- 😄 Pronouns: Lelaki sejati no LGBT
+- 😄 Pronouns: Lelaki sejati no LagiBatuk
 - ⚡ Fun fact: ngoawor
 
 <!---
